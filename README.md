@@ -9,8 +9,8 @@
 -
 -
 -          🍀 *~* 🍀
-- 💞️ I’m looking to collaborate with/on ...  solving~ Same Folk~ ' Interested in, Gaming,Deep Thinking,Laughing within the Sys om 💩 if only one knew 🙃
-- 🧐 I'd truly enjoy to Learn more about coding*
+- 💞️ I’m looking to collaborate with/on ...  solving~ Same Folk~ ' Interested in, Gaming,Deep Thinking,Laughing within the Sys om 💩- If only one knew 🙃
+- 🧐 I'd would truly enjoy to Learn more about coding*
 - 📫 How to reach me ... @1Standance GitHub.com
 - 😄 Pronouns: ... Adjectives 
 - ⚡ Fun fact: ... It takes fewer muscles to smile than to »
